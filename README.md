@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Muhammad Samiullah
+- 👀 I’m interested in Data Analytics (Internship)
+- 🌱 I’m currently enrolled in Bachelor of Data Sciences (4th semester) at University Of Central Punjab
